@@ -1,2 +1,0 @@
-# BN
-BN FOR IT
